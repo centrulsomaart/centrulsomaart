@@ -47,6 +47,9 @@ Email: [office@centrulsomaart.ro](mailto:office@centrulsomaart.ro)
 - [DeviantArt](https://www.deviantart.com/somaartcluj)
 - [Ask.fm](https://ask.fm/yegohat370)
 - [TED](https://www.ted.com/profiles/47012803)
+- [Tumblr](https://www.tumblr.com/centrulsomaart)
+- [Twitch](https://www.twitch.tv/centrulsomaart/about)
+- [Vimeo](https://vimeo.com/somaart)
 
 ---
 
