@@ -6,7 +6,7 @@
 
 La Soma Art, punem accent pe calitate și rezultate de durată. Iată câteva dintre serviciile noastre principale:
 
-- **[Epilare Definitivă](https://centrulsomaart.ro/epilare-definitiva-cluj/)** - Scapă de părul nedorit cu cele mai moderne tehnici de epilare definitivă.
+- **[Epilare Definitiva](https://centrulsomaart.ro/epilare-definitiva-cluj/)** - Scapă de părul nedorit cu cele mai moderne tehnici de epilare definitivă.
 - **[Drenaj Limfatic](https://centrulsomaart.ro/drenaj-limfatic-cluj/)** - Detoxifiere și îmbunătățirea circulației prin drenaj limfatic eficient.
 - **[Tratamente Corporale](https://centrulsomaart.ro/tratamente-corporale-cluj/)** - Tratamente personalizate pentru remodelarea și tonifierea corpului tău.
 - **[Remodelare Corporală](https://centrulsomaart.ro/remodelare-corporala-cluj/)** - Tehnici avansate pentru conturarea siluetei și reducerea celulitei.
@@ -34,6 +34,19 @@ Email: [office@centrulsomaart.ro](mailto:office@centrulsomaart.ro)
 - [Facebook](https://www.facebook.com/somaart.ro/)
 - [Pinterest](https://ro.pinterest.com/somaartcluj/)
 - [Twitter](https://twitter.com/SomaArt173603)
+
+## 💻 Ne poți găsi și pe următoarele platforme:
+
+- [GitHub](https://github.com/centrulsomaart)
+- [Disqus](https://disqus.com/by/centrulsomaart/about/)
+- [Linktree](https://linktr.ee/centrulsomaart)
+- [Mixcloud](https://www.mixcloud.com/somaartcluj/)
+- [OpenStreetMap](https://www.openstreetmap.org/user/Soma%20Art%20Cluj)
+- [Quora](https://www.quora.com/profile/Soma-Art-1)
+- [Issuu](https://issuu.com/somaartcluj)
+- [DeviantArt](https://www.deviantart.com/somaartcluj)
+- [Ask.fm](https://ask.fm/yegohat370)
+- [TED](https://www.ted.com/profiles/47012803)
 
 ---
 
