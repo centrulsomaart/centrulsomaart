@@ -9,7 +9,7 @@ La Soma Art, punem accent pe calitate și rezultate de durată. Iată câteva di
 - **[Epilare Definitiva](https://centrulsomaart.ro/epilare-definitiva-cluj/)** - Scapă de părul nedorit cu cele mai moderne tehnici de epilare definitivă.
 - **[Drenaj Limfatic](https://centrulsomaart.ro/drenaj-limfatic-cluj/)** - Detoxifiere și îmbunătățirea circulației prin drenaj limfatic eficient.
 - **[Tratamente Corporale](https://centrulsomaart.ro/tratamente-corporale-cluj/)** - Tratamente personalizate pentru remodelarea și tonifierea corpului tău.
-- **[Remodelare Corporală](https://centrulsomaart.ro/remodelare-corporala-cluj/)** - Tehnici avansate pentru conturarea siluetei și reducerea celulitei.
+- **[Remodelare Corporala](https://centrulsomaart.ro/remodelare-corporala-cluj/)** - Tehnici avansate pentru conturarea siluetei și reducerea celulitei.
 - **[Tratamente Faciale](https://centrulsomaart.ro/tratamente-faciale-cluj/)** - Tratamente faciale pentru o piele sănătoasă, luminoasă și hidratată.
 - **[Programează-te Online](https://centrulsomaart.ro/programare-online/)** - Simplu și rapid, programează-ți sesiunea online!
 
@@ -50,6 +50,9 @@ Email: [office@centrulsomaart.ro](mailto:office@centrulsomaart.ro)
 - [Tumblr](https://www.tumblr.com/centrulsomaart)
 - [Twitch](https://www.twitch.tv/centrulsomaart/about)
 - [Vimeo](https://vimeo.com/somaart)
+- [500px](https://500px.com/p/centrulsomaart)
+- [Gravatar](https://gravatar.com/centrulsomaart)
+- [Sarmato](https://sarmato.partecipa.online/profiles/centrulsomaart/timeline)
 
 ---
 
